@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ope 
+- 👋 Hi, I’m Ope,
 I am passionate about building website applications and I’m always adding new skills to my repertoire. 
 I am a good team player that love to provide dynamic solutions.
 
